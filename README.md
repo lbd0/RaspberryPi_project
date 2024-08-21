@@ -1,0 +1,13 @@
+# 스마트 현관 센서등
+![image](https://github.com/user-attachments/assets/d1cac936-8638-4261-a145-9578f66dfe37)
+![image](https://github.com/user-attachments/assets/595e06de-8f4c-4898-8c87-6beedce5d4e2)
+![image](https://github.com/user-attachments/assets/c6358631-3d35-469e-a764-2b95cee4f51a)
+![image](https://github.com/user-attachments/assets/e7428c6b-ea95-4171-9681-6ff546ce0d17)
+![image](https://github.com/user-attachments/assets/afc153d6-f497-4a30-bc68-669270612fd1)
+![image](https://github.com/user-attachments/assets/f6a5c379-a1d0-4084-9648-3bedc7c39f30)
+![image](https://github.com/user-attachments/assets/f0e81caa-fd96-41b8-8312-72dbb4e60f79)
+![image](https://github.com/user-attachments/assets/2433f5f8-7bea-4abc-a1ef-eb1070620496)
+![image](https://github.com/user-attachments/assets/e3f0b447-e9cd-41ee-87b9-877d732665b6)
+![image](https://github.com/user-attachments/assets/6cee7849-e6fd-491d-b62f-321de1e421e6)
+![image](https://github.com/user-attachments/assets/0c383621-d1e4-4a4a-9396-5d9e287fd976)
+![image](https://github.com/user-attachments/assets/1aaa5bd4-fbbb-4f8e-ae35-919a56ed5508)
